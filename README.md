@@ -24,7 +24,7 @@ IT support and security since 2011. 2,000+ businesses served. Remote support wor
 - GoDaddy mail servers — GoDaddy email set up, migrated, or put right.
 
 **Managed IT & Business Systems**
-- Managed IT services — ongoing IT support, remote, worldwide. Three plans: Essential $399/month, Business $499/month, Premium $599/month. Exact inclusions confirmed on the call.
+- Managed IT services — ongoing IT support, remote, worldwide. $1,500-$1,800 per month depending on size and needs. Exact price confirmed on the call.
 - ERP — back-office and finance systems set up and supported (accounting, billing, inventory). Price available on request.
 - Security alarm & CCTV — alarms and CCTV cameras installed on-site across India, by our own technicians. Price available on request.
 
